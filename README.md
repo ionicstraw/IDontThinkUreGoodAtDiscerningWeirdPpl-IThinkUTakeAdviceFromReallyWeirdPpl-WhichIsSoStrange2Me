@@ -4,3 +4,4 @@ if someone is talking about MY PERSONAL life in a PROFESSIONAL setting, that is 
 
 if someone is coercing u to live ur PERSONAL life in a certain way, in a PROFESSIONAL setting, in fking NYC of all places, that's a weird person ... u know that right?
 
+i think i have to be like ur mother something and ure a little kid or something and give u specific orders and be like "dont talk to that person, that's a weird fking person" or "that's some freak dont listen to them"
